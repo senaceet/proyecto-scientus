@@ -2,8 +2,6 @@
 
 ![WhatsApp Image 2021-02-24 at 10 39 31 PM](https://user-images.githubusercontent.com/72889058/109100674-5e877c00-76f3-11eb-9597-5697b270fc28.jpeg)
 
-## LOGO
-   ![Logo EDICION MEDIANO](https://user-images.githubusercontent.com/72889058/109101242-5ed44700-76f4-11eb-9707-3d82e6a75d27.png)
 
 ## NOMBRE CORPORATIVO
 
